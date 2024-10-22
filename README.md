@@ -1,0 +1,1 @@
+# Gotouchi-VTuber-dictionary
